@@ -1,0 +1,1 @@
+[Ссылка](https://drive.google.com/file/d/17pmHnciqAYp2Uh7dxsKgypWg6VaFsyc5/view?usp=sharing "Кликните для перехода") на диаграмму базы данных.
